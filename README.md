@@ -1,0 +1,1 @@
+# komatsushimatakeoutproject
